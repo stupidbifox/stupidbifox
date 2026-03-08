@@ -10,6 +10,6 @@ i'm also the founder behind [AstroNT](https://youtube.com/@astrontworkstation) a
 
 you can see more of me via [youtube](https://youtube.com/kitsixtyfour) and [mastodon](https://wetdry.world/@kitsixtyfour)!
 
-current pfp is by [accelldraws](https:///bsky.app/profile/accelldraws.bsky.social)!! ^^
+current pfp is by [delusionalarts](https://delusionalarts.tumblr.com)!! ^^
 
 have a nice day!! :3
