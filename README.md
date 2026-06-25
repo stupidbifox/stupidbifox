@@ -1,15 +1,12 @@
-hello~\
-i'm **KitSixtyFour**, but you can just call me **kit**
+Hello~\
+I'm **KitSixtyFour**, but you can just call me **Kit**!
 
-as you can see, this is the place where i throw the source code of the things i make.\
-i don't make stuff as much as i used to, so don't expect much activity around here.
+As you can see, this is the place where I throw the source code of the things I make.\
+I don't make stuff as much as I used to, so don't expect much activity around here.
 
-about myself? i'm demiboy and bisexual, i like the [Mario & Luigi RPG](https://www.mariowiki.com/Mario_%26_Luigi_(series)) series, edm music (Unison - Aperture is one of my favs), i know how to draw, and i'm a furry :3
+What about myself? I'm demiboy and bisexual and I have a very awesome boyfriend, I like the [Mario & Luigi RPG](https://www.mariowiki.com/Mario_%26_Luigi_(series)) series, several ranges of music (I got lots of favs but I currently like Starlight by Michael Jackson), and I'm a (part-time) furry artist! Either way, I'm also the creator of [AstroNT](https://www.youtube.com/@AstroNTWorkstation) and [KuroWiki](https://www.github.com/Axeon-Network/kurowiki)! ^^\
+You can see more of me in the left panel :3
 
-i'm also the founder behind [AstroNT](https://youtube.com/@astrontworkstation) and [KuroWiki](https://github.com/Axeon-Network/kurowiki)!
-
-you can see more of me via the socials on the left!
-
-current pfp is by [Gevil](https://x.com/Cavitivy)!! ^^
+Current pfp is by [Nofferston](https://www.twitter.com/nofferston)!! ^^
 
 have a nice day!! :3
