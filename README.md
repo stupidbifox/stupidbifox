@@ -1,5 +1,5 @@
 Hello~\
-I'm **KitSixtyFour**, but you can just call me **Kit**!
+I'm **KitSixtyFour**, but you can just call me **Kit** or **Snowy**!
 
 As you can see, this is the place where I throw the source code of the things I make.\
 I don't make stuff as much as I used to, so don't expect much activity around here.
